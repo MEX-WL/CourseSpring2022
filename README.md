@@ -2,7 +2,7 @@
 [MexiCOsmo Events IAC](http://iac.edu.mx/activities/mexicosmoevents/)
 
 
-## Viernes 18:00-20:00 (Marzo 18, 25, Abril 1, 8, 29, Mayo 6)
+## Viernes 18:00-20:00 (Marzo 25, Abril 1, 8, 29, Mayo 6)
 
 ### Primera sesión Viernes 18 de Marzo @18:00
 
