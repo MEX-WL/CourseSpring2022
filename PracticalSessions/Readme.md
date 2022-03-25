@@ -1,1 +1,0 @@
-# Sesiones prácticas
